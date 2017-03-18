@@ -1,0 +1,2 @@
+# home
+nashome542dir
